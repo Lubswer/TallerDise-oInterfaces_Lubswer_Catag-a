@@ -1,2 +1,2 @@
-# TallerDise-oInterfaces_Lubswer_Catag-a
+# Adjunto el winrar del taller en clase
 Taller en clase Lubswer Catagña
